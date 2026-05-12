@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dexscreener sniper bot with updated dexscreener sniper bot | front-running + auto-buy. Featuring front-running and auto-buy, it's the best choice for automated
 
 
 
